@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...Data projects 
 - 📫 How to reach me ... ntozakhelathitha45@gmail.com
 - 😄 Pronouns: ...We can work together and accomplish any problem
-- ⚡ Fun fact: ...I mix beans and eggs in my sandwiches. It is tasty and i cannot let go of it.
+- ⚡ Fun fact: ... I do not like wasting time , i have alot to process.
 
 <!---
 Lathi697/Lathi697 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
